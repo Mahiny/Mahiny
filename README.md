@@ -1,7 +1,7 @@
 ## Olá! Eu sou a Mahiny.
 
 
- - 🔭 Hoje, eu trabalho no Departamento de Compliance | Varejo
+ - 🔭 Hoje, eu trabalho como Analista de Compliance | Varejo
  - 🌱 Estudando Gestão Comercial e Programação 
  - ❤️ Apaixonada por Tecnologia
  - 🙂 Pronomes: Ela/Dela
