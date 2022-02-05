@@ -1,10 +1,9 @@
 ## Olá! Eu sou a Mahiny.
 
 
- - 🔭 Hoje, eu trabalho como Analista de Compliance | Varejo
- - 🌱 Estudando Gestão Comercial e Programação 
- - ❤️ Apaixonada por Tecnologia
- - 🙂 Pronomes: Ela/Dela
+ - Estudando Gestão Comercial e Programação 
+ - Dados/Desenvolve - Grupo Boticário
+ - ❤️ Encontrando-se em Tecnologia
 
 
 
