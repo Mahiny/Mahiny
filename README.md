@@ -1,9 +1,7 @@
 ## Olá! Eu sou a Mahiny.
 
 
- - Estudando Gestão Comercial e Programação 
- - Dados/Desenvolve - Grupo Boticário
- - ❤️ Encontrando-se na Tecnologia
+  ❤️ Encontrando-se na Tecnologia
 
 
 
