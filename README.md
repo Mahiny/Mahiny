@@ -3,7 +3,7 @@
 
  - Estudando Gestão Comercial e Programação 
  - Dados/Desenvolve - Grupo Boticário
- - ❤️ Encontrando-se em Tecnologia
+ - ❤️ Encontrando-se na Tecnologia
 
 
 
