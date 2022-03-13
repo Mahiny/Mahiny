@@ -1,8 +1,9 @@
 ## Olá! Eu sou a Mahiny.
 
 
+  Tech Developer - Digital House | Dados - Grupo Boticário
   ❤️ Encontrando-se na Tecnologia
-
+    
 
 
 <div align="center">
